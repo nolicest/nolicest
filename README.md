@@ -4,3 +4,4 @@
 
 
 yo im data , female and engaged . i like rick n morty , rblx overwatch fortnite etc
+my rentry : https://rentry.co/admnviirus
